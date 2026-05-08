@@ -1,4 +1,4 @@
-
+Enhance CorelDRAW for macOS with CorelDRAW for macOS premium Preset - export to SVG and smart objects, the #1 preset. Includes export to SVG and smart objects for a smoother and
 
 
 
